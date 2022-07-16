@@ -1,0 +1,7 @@
+- 👋 Hello, I’m @USER COOL
+- 👀 I am a young Programmer still in high school
+- 👀 And i am from Pakistan 
+- 👀 I’m interested in Gaming and Programming
+- 🌱 I’m currently learning JAVA and swift
+- 💞️ I’m looking to collaborate on a new project
+- 📫 Reach me through my instagram @im.not_rahim
